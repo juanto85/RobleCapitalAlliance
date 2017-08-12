@@ -1,2 +1,2 @@
 # RobleCapitalAlliance
-Roble Capital Alliance Inc. is an investment group founded by family and friends.
+Roble Capital Alliance Inc. is an investment group with forward ideals from Education to Technology.
